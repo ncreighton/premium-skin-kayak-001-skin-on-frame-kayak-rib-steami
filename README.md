@@ -1,0 +1,2 @@
+# premium-skin-kayak-001-skin-on-frame-kayak-rib-steami
+Tired of guessing when your oak ribs have soaked long enough or steaming too short? The Skin-on-Frame Kayak Rib Steaming Tracker gives you a precise log to ensure perfect bends every time.  This Notion template solves the chaos of tracking multiple ribs simultaneously. It centralizes soak start times, steam duration, and bend notes, so you never ov
